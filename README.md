@@ -1,6 +1,7 @@
 #tamquiza
 
 #**Tam Quiza**
+
 ##*Diseñadora editorial e ilustradora* 
 
 ###Mis principales fuentes de inspiración son el espacio urbano siendo intervenido. Me gusta mucho hablar y aprender sobre la cultura latina, su politización y la gráfica alrededor de eso. El collage y muralismo.
