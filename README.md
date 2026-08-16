@@ -8,6 +8,6 @@
 
 Disfruto reír en fuerte, bailar y mover los pies en general. Me entusiasma conocer el mundo a través de la gente, la música, el arte y la comida. 
 
-No soy fan del minimalismo, no tolero las mentes cerradas, los celos y la gente que no baila 
+No soy fan del minimalismo, no tolero las mentes cerradas ni a la gente que no baila 
 
 **Let´s team up :)**
